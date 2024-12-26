@@ -20,5 +20,5 @@ I enjoy solving complex problems, enabling smooth communication between systems,
 
 📫 Let’s connect!
 
-www.linkedin.com/in/kiran-negi-5854aa248
+www.linkedin.com/in/kiran-negi-5854aa248 .
 negiaaradhya02@gmail.com
